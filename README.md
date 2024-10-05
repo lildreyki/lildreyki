@@ -1,1 +1,1 @@
-## Oi, pode me chamar me dreyki xD
+## Oi, pode me chamar de dreyki xD
